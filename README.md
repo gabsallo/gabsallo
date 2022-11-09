@@ -1,0 +1,3 @@
+- 👋 Oii, meu nome aqui é @gabsallo
+- 👀 Moro em Maringá
+- 🌱 Sou estudante e pretendo fazer Marketing Digital no futuro
